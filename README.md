@@ -1,2 +1,2 @@
-click here  https://frankbanna.github.io/My_Resume/
+click here : https://frankbanna.github.io/My_Resume/   👆🏼
 
